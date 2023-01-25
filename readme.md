@@ -12,3 +12,4 @@ There was a boy named luke and he had a drinking problem with gatorade
 There was a man named Luke who wanted to be king
 Dream had an epic rap battle against Rosa Parks
 Seniors deliberately rebelled
+There was a boy who thought he was the smartest
